@@ -2,5 +2,4 @@
 
 
 
-
-HAM IS LEKKER ZOWIESO
+jantje is een klantje
